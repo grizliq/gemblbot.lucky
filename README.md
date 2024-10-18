@@ -1,1 +1,1 @@
-# entylucky
+# grizliq delaet
